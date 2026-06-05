@@ -25,7 +25,7 @@
 
   
 
-- 🎓 Computer Data Engineering @ Hongik Univ. 
+- 🎓 Data Industrial Engineering @ Hongik Univ. 
 
 - 🏀 Love Basketball || SG
 
