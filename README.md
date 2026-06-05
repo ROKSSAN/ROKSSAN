@@ -25,7 +25,7 @@
 
   
 
-- 🎓 Data Industrial Engineering @ Hongik Univ. 
+- 🎓 Industrial Data Engineering @ Hongik Univ. 
 
 - 🏀 Love Basketball || SG
 
